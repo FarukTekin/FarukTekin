@@ -1,1 +1,1 @@
-![aragorn](https://github.com/FarukTekin/FarukTekin/assets/86856272/dd4ddab9-1aa1-4892-a73e-8f52d0be871e)
+![balrog](https://github.com/FarukTekin/FarukTekin/assets/86856272/f4cf1171-18fc-4280-9903-92ca19faca63)
