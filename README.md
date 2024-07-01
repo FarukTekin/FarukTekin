@@ -3,5 +3,7 @@
 
 Reach me:
 📫 omer98tekin@gmail.com
+
+
 Connect with me:
 https://www.linkedin.com/in/faruk-tekin/
