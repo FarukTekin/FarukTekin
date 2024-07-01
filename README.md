@@ -1,4 +1,4 @@
-![pixel](https://github.com/FarukTekin/FarukTekin/assets/86856272/05e8fedf-53db-44aa-a6a4-8913088fb917)
+![rogue_one](https://github.com/FarukTekin/FarukTekin/assets/86856272/4cc7fc72-354d-4482-a047-a454d84be1b5)
 
 
 Reach me:
