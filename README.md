@@ -2,7 +2,7 @@
 
 
 Reach me:
-📫 omer98tekin@gmail.com
+ omer98tekin@gmail.com
 
 
 Connect with me:
