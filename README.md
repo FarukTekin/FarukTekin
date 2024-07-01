@@ -1,1 +1,1 @@
-[![qui gon](https://github.com/FarukTekin/FarukTekin/assets/86856272/7bf25745-ade8-4403-91c5-fc7081a90067)](https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.icegif.com%2Fgif%2Fspace-opera%2F&psig=AOvVaw2F5Hb94rd0MuvjO4u5GqeS&ust=1719915123091000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqGAoTCMiDjKPNhYcDFQAAAAAdAAAAABCjAQ)
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.icegif.com%2Fgif%2Fspace-opera%2F&psig=AOvVaw2F5Hb94rd0MuvjO4u5GqeS&ust=1719915123091000&source=images&cd=vfe&opi=89978449&ved=0CBAQjRxqGAoTCMiDjKPNhYcDFQAAAAAdAAAAABCjAQ
